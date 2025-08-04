@@ -9,7 +9,7 @@
 # Dr. Jaswinder Singh 
 # ( RENOWNED FOR JASWINS LAB ON WHEELS )
 ## Brought Physics and Maths to life through fun , simplified experiments and demonstrations.
-## Dr. Priya Darshni continued with " UNIVERSAL HUMAN VALUES " 
-### CHIEF GUEST - S. GURCHARAN SINGH GREWAL , Secretary - SGPC encouraged us all with his motivating words.
+# Dr. Priya Darshni continued with " UNIVERSAL HUMAN VALUES " 
+# CHIEF GUEST - S. GURCHARAN SINGH GREWAL , Secretary - SGPC encouraged us all with his motivating words.
 # Really , these all lectures were so so interesting.
 ## LEARNING , LAUGHTER AND SELF DISCOVERY ALL ROLLED INTO ONE POWERFUL DAY...
